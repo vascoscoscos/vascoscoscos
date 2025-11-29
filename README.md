@@ -1,6 +1,5 @@
-![image alt](https://i.imgur.com/m4ulwx2.jpeg) 
-
 ![profileviews](https://komarev.com/ghpvc/?username=vascoscoscos&color=fdb564)
+![image alt](https://i.imgur.com/m4ulwx2.jpeg) 
 
 <!--
 **vascoscoscos/vascoscoscos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
