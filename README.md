@@ -1,7 +1,9 @@
 ![stars](https://komarev.com/ghpvc/?username=vascoscoscos&color=fdb564)
 
 [rentry](https://rentry.co/vascos)
+
                  [atabook](https://vascoscoscos.atabook.org)
+                 
    [strawpage](https://vascos.straw.page)
 
       
