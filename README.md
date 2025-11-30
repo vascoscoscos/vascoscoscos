@@ -1,4 +1,4 @@
-![stars](https://komarev.com/ghpvc/?username=vascoscoscos&color=fdb564)
+![stars](https://komarev.com/ghpvc/?username=vascoscoscos&color=676c73)
 
 [rentry](https://rentry.co/vascos)
 
