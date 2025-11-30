@@ -1,5 +1,9 @@
 ![stars](https://komarev.com/ghpvc/?username=vascoscoscos&color=676c73)
 
+#Hello ! welcome to my github ><
+
+## I am usually sitting in the areas listed on the location, Im usually with friends but I dont mind any c+h ! just dont be weird.
+
 [rentry](https://rentry.co/vascos)
 
    [atabook](https://vascoscoscos.atabook.org)
@@ -8,18 +12,3 @@
 
       
 ![image alt](https://i.imgur.com/iNO2jit.jpeg) 
-
-<!--
-**vascoscoscos/vascoscoscos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
