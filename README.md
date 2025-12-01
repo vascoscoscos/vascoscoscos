@@ -4,7 +4,7 @@
 
 >Hello ! welcome to my github ><
 
-> I am usually sitting in the areas listed on the location, Im usually with friends but I dont mind any c+h ! just dont be weird.
+> I am usually sitting in the areas listed on the location, I am mostly with friends but I dont mind any c+h ! just dont be weird.
 
 [rentry](https://rentry.co/vascos)
 
