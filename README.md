@@ -8,7 +8,7 @@
 
 [rentry](https://rentry.co/vascos)
 
-   [atabook](https://vascoscoscos.atabook.org)
+   [atabook](https://vascoscoscos.atabook.org)  <- just made
                  
    [strawpage](https://vascos.straw.page)
 
