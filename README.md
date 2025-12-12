@@ -7,7 +7,7 @@
 > I am usually sitting in the areas listed on the location, I am mostly with friends but I dont mind any c+h ! just dont be weird.
 
 
-꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂
+### **꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂**
 
 
 [rentry](https://rentry.co/vascos)
