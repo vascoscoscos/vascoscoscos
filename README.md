@@ -13,4 +13,4 @@
    [strawpage](https://vascos.straw.page)
 
       
-   ![image alt](https://imgur.com/a/NQ4pu3o) 
+   ![image alt](https://imgur.com/a/NQ4pu3o.jpeg) 
