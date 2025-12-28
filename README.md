@@ -23,7 +23,9 @@
 > I hope that last part made sense
 
 
+
 > english is not my first language so I apologize if I say anything that does not make sense !
+
 
 
 > thank u vivian for the rentry !!!!! ❤︎
