@@ -22,7 +22,8 @@
 > or make you feel uncomfy in any way, I WILL stop and note it. I do try to avoid (some) sensitive people because of this, but please do not take it personal
 > (hopefully the last part made sense) (~_~;)
 
-english is not my first language so I apologize if I respond to anything that does not make sense !
+
+> english is not my first language so I apologize if I say anything that does not make sense !
 
 
 > thank u vivian for the rentry !!!!! ❤︎
