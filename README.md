@@ -19,8 +19,8 @@
 
 **SOME THINGS I MAY NEED TO PUT HERE vv**
 > I do joke around a lot and some things MAY offend other people or possibly make them uncomfortabke, so PLEAASE tell me if I offended you
-> or make you feel uncomfy in any way, I WILL stop and note it. I do try to avoid (some) sensitive people because of this, but please do not take it personal
-> (hopefully the last part made sense) (~_~;)
+> or make you feel uncomfy in any way, I WILL stop and note it. I do try to avoid (some) sensitive people because of this, but please do not take it personal;
+> I hope that last part made sense
 
 
 > english is not my first language so I apologize if I say anything that does not make sense !
