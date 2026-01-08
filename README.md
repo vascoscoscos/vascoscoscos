@@ -17,6 +17,6 @@
    [strawpage](https://vascos.straw.page)
 
 
-** do not ask me to use my supporter for your builds, thanks **
+**do not ask me to use my supporter for your builds**
 
 > thank u vivian for the rentry !!!!! ❤︎
