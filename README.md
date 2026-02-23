@@ -17,6 +17,6 @@
    [strawpage](https://vascos.straw.page)
 
 
-**do not ask me to use my supporter for your builds**
+**I MIGHT help with builds depending on the servers**
 
 > thank u vivian for the rentry !!!!! ❤︎
