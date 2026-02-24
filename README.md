@@ -8,6 +8,7 @@
 > I have w2i in my name because im usually offtab, so I apologize if I respond late or dont respond at all ;
 
 > if you have any problems with me then keep it to yourself, I couldn't care less abt what you think of me because I know I didnt do anything, ok? thx /targetted
+> I dont hop on to start any problems, so I am willing to sort it out; but if you dont want to then thats all on you and ill be keeping your chats blocked !
 
 ###            **꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂**
 
