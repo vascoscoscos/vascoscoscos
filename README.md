@@ -6,6 +6,7 @@
 
 > I am usually sitting in the areas listed on the location, I am mostly with friends but I dont mind any c+h ! just dont be weird.
 > I have w2i in my name because im usually offtab, so I apologize if I respond late or dont respond at all ;
+> if you have any problems with me then keep it to yourself, I couldn't care less abt what you think of me, ok? thx
 
 ###            **꧁⎝ 𓆩༺✧༻𓆪 ⎠꧂**
 
