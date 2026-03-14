@@ -14,7 +14,7 @@
 
 [rentry](https://rentry.co/vascos)
 
-   [atabook](https://vascoscoscos.atabook.org)  <- just made
+   [atabook](https://vascoscoscos.atabook.org)  <- NOT just made
                  
    [strawpage](https://vascos.straw.page)
 
