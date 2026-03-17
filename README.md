@@ -23,4 +23,4 @@
 
 > thank u vivian for the rentry !!!!! ❤︎
 
-faxxie is problematic btw he can smd since he seems to be into that weirdo (｡>﹏<) putting me in ur bio and hating on me even when im not around simply bc one of our friends sat with me ONCE is sooo stupid, grow up ur already 15
+faxxie is problematic btw he can smd since he seems to be into that weirdo (｡>﹏<) putting me in ur bio and hating on me even when im not around simply bc one of our friends sat with me is sooo stupid, grow up ur already 15
