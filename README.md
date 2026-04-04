@@ -1,6 +1,6 @@
 ![stars](https://komarev.com/ghpvc/?username=vascoscoscos&color=676c73)
 
-**this is a WIP(work in progress).. please dont mind this !!**
+**this is a WIP(work in progress) please dont mind this**
 
 >Hello ! you can call me vasco or vas ꕤ
 
