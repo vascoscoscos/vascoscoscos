@@ -17,3 +17,5 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 thank u vivian for the rentry !!!!! ❤︎
 
+friends ♡
+[YUU](https://github.com/j3st-r) [LILAH](https://github.com/dihlilah) 
