@@ -9,10 +9,7 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 · · ─ ·𖥸· ─ · ·
 
-[rentry](https://rentry.co/vascos)
-
-   [atabook](https://vascoscoscos.atabook.org)  <- NOT just made
-                 
+[rentry](https://rentry.co/vascos)  ┆  [atabook](https://vascoscoscos.atabook.org) 
    [strawpage](https://vascos.straw.page)
 
 
