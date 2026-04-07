@@ -19,5 +19,5 @@ thank u vivian for the rentry !!!!! ❤︎
 
 friends ♡
 
-[YUU](https://github.com/j3st-r) [LILAH](https://github.com/dihlilah) [LENIX](https://github.com/lenxlu) [ALIM](https://github.com/5orrows)
-[ROSE](https://github.com/sleepyroseee) [RIN](https://github.com/angelshots) 
+[YUU](https://github.com/j3st-r)  [LILAH](https://github.com/dihlilah)  [LENIX](https://github.com/lenxlu)  [ALIM](https://github.com/5orrows) 
+[ROSE](https://github.com/sleepyroseee)  [RIN](https://github.com/angelshots) 
