@@ -23,7 +23,7 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 thank u vivian for the rentry !!!!! ❤︎
 
-![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=d4c7e8)
+![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=b09fc3)
 
 <h4 align="center">
 
