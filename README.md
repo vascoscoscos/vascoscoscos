@@ -26,3 +26,5 @@ friends ♡
 [YUU](https://github.com/j3st-r)ㅤ [LILAH](https://github.com/dihlilah)ㅤ [LENIX](https://github.com/lenxlu)ㅤ [ALIM](https://github.com/5orrows)ㅤ [ROSE](https://github.com/sleepyroseee)ㅤ [RIN](https://github.com/angelshots)ㅤ [SHUU](https://github.com/bugsthatbite)
 
 [KIRARA](https://github.com/freedomsdrums)ㅤ [TORI](https://github.com/7oriord)ㅤ [SOAP](https://github.com/RATIO-TECHNIQUE)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/phantomedjoker)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/Panorato)ㅤ [TORO](https://github.com/altorocito)
+
+![alt text](https://i.pinimg.com/736x/fb/94/a6/fb94a6047e07dec82e44d66657152410.jpg)
