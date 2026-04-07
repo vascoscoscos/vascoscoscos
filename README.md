@@ -13,8 +13,6 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 ┆ [strawpage](https://vascos.straw.page) ┆
 
-[logo]: https://i.pinimg.com/736x/fb/94/a6/fb94a6047e07dec82e44d66657152410.jpg "Logo Title Text 2"
-
 **I MIGHT help with builds depending on the servers**
 
 thank u vivian for the rentry !!!!! ❤︎
