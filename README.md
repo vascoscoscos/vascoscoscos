@@ -1,4 +1,3 @@
-![stars](https://komarev.com/ghpvc/?username=vascoscoscos&color=676c73)
 
 ![image alt](https://cdn.phototourl.com/free/2026-04-07-907deed5-1198-49c2-bff4-654f01586925.png)
 
@@ -23,6 +22,8 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 <h6 align="center">
 
 thank u vivian for the rentry !!!!! ❤︎
+
+![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=d4c7e8)
 
 <h4 align="center">
 
