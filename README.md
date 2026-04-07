@@ -1,5 +1,7 @@
 ![stars](https://komarev.com/ghpvc/?username=vascoscoscos&color=676c73)
 
+![image alt](https://cdn.phototourl.com/free/2026-04-07-907deed5-1198-49c2-bff4-654f01586925.png)
+
 <h4 align="center">
 
 Hello ! you can call me vasco or vas ꕤ
