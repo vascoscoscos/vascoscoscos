@@ -28,4 +28,4 @@ friends ♡
 [KIRARA](https://github.com/freedomsdrums)ㅤ [TORI](https://github.com/7oriord)ㅤ [SOAP](https://github.com/RATIO-TECHNIQUE)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/phantomedjoker)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/Panorato)ㅤ [TORO](https://github.com/altorocito)
 
 
-<img src="https://image2url.com/r2/default/images/1775543592120-daa5a8fc-ae59-44ef-a17e-24b5d84607d9.png" alt="image" />
+![image](https://image2url.com/r2/default/images/1775543592120-daa5a8fc-ae59-44ef-a17e-24b5d84607d9.png)
