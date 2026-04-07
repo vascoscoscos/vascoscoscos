@@ -15,7 +15,11 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 **I MIGHT help with builds depending on the servers**
 
+<h2 align="center">
+
 thank u vivian for the rentry !!!!! ❤︎
+
+<h4 align="center">
 
 friends ♡
 
