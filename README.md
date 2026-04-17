@@ -14,7 +14,7 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 ┆ [strawpage](https://vascos.straw.page) ┆
 
-**I MIGHT help with builds depending on the servers**
+**0000**
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　
