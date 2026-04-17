@@ -14,7 +14,7 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 ┆ [strawpage](https://vascos.straw.page) ┆
 
-**14/07/2009**
+**07/14/2009**
 
 ˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆.
 　　　.   　　˚　　 　　*　　 　　✦　　　.　　.　　　✦　˚ 　　　　 ˚　.˚　　　　　　.　　. 　 ˚　.　　
