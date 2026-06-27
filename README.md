@@ -29,9 +29,9 @@ thank u vivian for the rentry !!!!! ❤︎
 
 friends ♡
 
-[YUU](https://github.com/j3st-r)ㅤ [LILAH](https://github.com/dihlilah)ㅤ [LENIX](https://github.com/lenxlu)ㅤ [ALIM](https://github.com/5orrows)ㅤ [ROSE](https://github.com/sleepyroseee)ㅤ [RIN](https://github.com/angelshots)ㅤ [SHUU](https://github.com/bugsthatbite)
+[YUU](https://github.com/j3st-r)ㅤ [LILAH](https://github.com/dihlilah)ㅤ [LENIX](https://github.com/lenxlu)ㅤ [UGLY](https://github.com/5orrows)ㅤ [ROSE](https://github.com/sleepyroseee)ㅤ [RIN](https://github.com/angelshots)ㅤ [SHUU](https://github.com/bugsthatbite)
 
-[KIRARA](https://github.com/freedomsdrums)ㅤ [TORI](https://github.com/7oriord)ㅤ [SOAP](https://github.com/RATIO-TECHNIQUE)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/phantomedjoker)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/Panorato)ㅤ [TORO](https://github.com/altorocito)ㅤ [MORGUE](https://github.com/Iostromance)ㅤ [13](https://github.com/pawnresearch)
+[KIRARA](https://github.com/freedomsdrums)ㅤ [UGLY](https://github.com/7oriord)ㅤ [SOAP](https://github.com/RATIO-TECHNIQUE)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/phantomedjoker)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/Panorato)ㅤ [TORO](https://github.com/altorocito)ㅤ [MORGUE](https://github.com/Iostromance)ㅤ [13](https://github.com/pawnresearch)
 
 ![image alt](https://cdn.phototourl.com/free/2026-04-07-59e1af14-b719-47fb-8421-3d73d7f5456f.png)
 
