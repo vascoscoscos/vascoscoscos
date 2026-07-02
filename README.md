@@ -21,7 +21,7 @@ I have w2i in my name because im usually offtab, so I apologize if I respond lat
 
 <h5 align="center">
 
-thank u vivian for the rentry !!!!! ❤︎
+thank u vivian (@seacrets) for the rentry !!!!! ❤︎
 
 ![profileviews](https://komarev.com/ghpvc/?username=dihlilah&color=b09fc3)
 
