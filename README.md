@@ -6,7 +6,7 @@
 Hello ! you can call me vasco or vas for short ꕤ
 
 I am usually sitting in the areas listed on the location, I am mostly with friends but I dont mind any c+h ! just dont be weird.
-I have w2i in my name because im usually offtab, so I apologize if I respond late or dont respond at all ;
+I sometimes have w2i in my name because im usually offtab, so I apologize if I respond late or dont respond at all ;
 
 ── ⋆⋅☆⋅⋆ ──
 
