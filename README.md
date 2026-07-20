@@ -30,7 +30,7 @@ thank u vivian (@seacrets) for the rentry !!!!! ❤︎
 
 friends ♡
 
-[YUU](https://github.com/j3st-r)ㅤ [LILAH](https://github.com/dihlilah)ㅤㅤ [ROSE](https://github.com/sleepyroseee)ㅤ [RIN](https://github.com/angelshots)ㅤ [SHUU](https://github.com/bugsthatbite)ㅤ [KIRARA](https://github.com/freedomsdrums)
+[YUU](https://github.com/j3st-r)ㅤ [LILAH](https://github.com/dihlilah)ㅤ [ROSE](https://github.com/sleepyroseee)ㅤ [RIN](https://github.com/angelshots)ㅤ [SHUU](https://github.com/bugsthatbite)ㅤ [KIRARA](https://github.com/freedomsdrums)
 
 [TORI](https://github.com/7oriord)ㅤ [SOAP](https://github.com/RATIO-TECHNIQUE)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/phantomedjoker)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/Panorato)ㅤ [TORO](https://github.com/altorocito)ㅤ [MORGUE](https://github.com/Iostromance)ㅤ [13](https://github.com/pawnresearch)
 
