@@ -32,7 +32,7 @@ friends ♡
 
 [YUU](https://github.com/ltadorii)ㅤ [ROSE](https://github.com/sleepyroseee)ㅤ [RIN](https://github.com/angelshots)ㅤ [SHUU](https://github.com/bugsthatbite)ㅤ [KIRARA](https://github.com/virtuabwn)ㅤ [TORI](https://github.com/7oriord)
 
-[SOAP](https://github.com/shokosclinic)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/phantomedjoker)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/Panorato)ㅤ [TORO](https://github.com/denguemon)ㅤ [MORGUE](https://github.com/Iostromance)ㅤ [13](https://github.com/pawnresearch)
+[SOAP](https://github.com/shokosclinic)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/revolverammos)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/Panorato)ㅤ [TORO](https://github.com/denguemon)ㅤ [MORGUE](https://github.com/Iostromance)ㅤ [13](https://github.com/pawnresearch)
 
 ![image alt](https://cdn.phototourl.com/free/2026-04-07-59e1af14-b719-47fb-8421-3d73d7f5456f.png)
 
