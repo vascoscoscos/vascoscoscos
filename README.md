@@ -34,6 +34,6 @@ friends ♡
 
 [SOAP](https://github.com/shokosclinic)ㅤ [UFFOH](https://github.com/uffohsnack)ㅤ [NEZ](https://github.com/revolverammos)ㅤ [HANNIE](https://github.com/KaceClosed)ㅤ [SWITZ](https://github.com/YUMIMARUJI)ㅤ [TORO](https://github.com/denguemon)ㅤ [13](https://github.com/pawnresearch)
 
-![image alt](https://cdn.phototourl.com/free/2026-04-07-59e1af14-b719-47fb-8421-3d73d7f5456f.png)
+![image alt](https://file.garden/asSIRhOOwG_05lgc/Untitled%20(3).png)
 
 ![image alt](https://file.garden/asSIRhOOwG_05lgc/Untitled%20(5).png)
